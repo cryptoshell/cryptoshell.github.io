@@ -1,6 +1,6 @@
 # Hi!
 
-Hi! My name's Yelim 👋
+Hi! My name's Yelimm 👋
 
 # My next steps...
 Letter of intent content
